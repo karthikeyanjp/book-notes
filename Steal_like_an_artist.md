@@ -7,7 +7,9 @@ Notes Status: Currently Reading
 
 # 🚀 The Book in 3 Sentences
 
-1. 
+1. Nothing is original. Use other's ideas and rediscover yourself in the process.
+2. Share your work
+3. It's not the work always that's creative. Sometimes, it's the space between the work that creates creativity.
 
 # 🎨 Impressions
 
